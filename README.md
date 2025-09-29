@@ -7,7 +7,15 @@
 
 ˚☆ • ꒰ა ☆ ໒꒱ ‧☆˚
 
-Notes!
+Things you should know ! :D
 
 - This is an account about my oc! because i love her alot!!
 - my main is [@VelvetCakesDepth](https://github.com/VelvetCakesDepth) !! get to know me more there! ^_^
+
+
+![IMG-20250929-WA0004](https://github.com/user-attachments/assets/9ed0d03d-a3f1-4925-bc10-fbdcbe23ffa9)
+art credits: Archangelita/Balvenie
+
+(THEY ARE SO TALENTED GUHH)
+
+doesnt she look pretty...
