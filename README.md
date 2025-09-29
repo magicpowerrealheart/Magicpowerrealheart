@@ -1,16 +1,13 @@
-## Hi there 👋
+.𖥔 ݁·🛸── .✦
 
-<!--
-**magicpowerrealheart/Magicpowerrealheart** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+˚☆ • ꒰ა ☆ ໒꒱ ‧☆˚
 
-Here are some ideas to get you started:
+*’ ’ 𝘐 𝘸𝘰𝘶𝘭𝘥 𝘤𝘰𝘶𝘯𝘴𝘦𝘭 𝘺𝘰𝘶 𝘢𝘨𝘢𝘪𝘯𝘴𝘵... 𝘶𝘯𝘥𝘶𝘭𝘺 𝘵𝘢𝘹𝘪𝘯𝘨 𝘮𝘺 𝘱𝘢𝘵𝘪𝘦𝘯𝘤𝘦... ’ ’*
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+˚☆ • ꒰ა ☆ ໒꒱ ‧☆˚
+
+Notes!
+
+- This is an account about my oc! because i love her alot!!
+- my main is [@VelvetCakesDepth](https://github.com/VelvetCakesDepth) !! get to know me more there! ^_^
